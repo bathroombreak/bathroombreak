@@ -1,3 +1,5 @@
+![](https://im5.ezgif.com/tmp/ezgif-5-e9fc23954f.gif)
+
   ![](https://cdn.discordapp.com/attachments/754805640332836894/1190656258978611210/Untitled_design.png?ex=65a2980d&is=6590230d&hm=784d81ff6ae14e40cf5c69ccf472fa152331bd167e98956fe7436e0f5f7292f1&) 
 
  spkgc irl 
