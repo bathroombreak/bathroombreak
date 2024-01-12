@@ -1,4 +1,4 @@
-![](https://graphic.neocities.org/8ZWNyDf.png) ![](https://media1.tenor.com/m/-6BY3le4C_oAAAAC/allen-walker-timcanpy.gif) ![](https://graphic.neocities.org/7FXurPH.png)
+![](https://graphic.neocities.org/ohshc5.gif) ![](https://media1.tenor.com/m/-6BY3le4C_oAAAAC/allen-walker-timcanpy.gif) ![](https://graphic.neocities.org/ohshc10.gif) 
 
   ![](https://cdn.discordapp.com/attachments/754805640332836894/1190656258978611210/Untitled_design.png?ex=65a2980d&is=6590230d&hm=784d81ff6ae14e40cf5c69ccf472fa152331bd167e98956fe7436e0f5f7292f1&) 
 
