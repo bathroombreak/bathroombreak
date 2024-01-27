@@ -1,5 +1,3 @@
-TALK to me abt jjk ill go batshit crazy
-
 ![](https://graphic.neocities.org/hhdot16.gif) ![](https://media1.tenor.com/m/xNUcwlD4FdEAAAAd/gojo-satoru.gif) ![](https://graphic.neocities.org/hhdot07.gif) 
 
   ![](https://cdn.discordapp.com/attachments/754805640332836894/1190656258978611210/Untitled_design.png?ex=65a2980d&is=6590230d&hm=784d81ff6ae14e40cf5c69ccf472fa152331bd167e98956fe7436e0f5f7292f1&) 
