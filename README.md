@@ -3,7 +3,7 @@ cute
 
 ![](https://media1.tenor.com/m/xNUcwlD4FdEAAAAd/gojo-satoru.gif) 
 
-![](https://cdn.discordapp.com/attachments/754805640332836894/1202651894959317062/epichippy_-_1731286326115201069.gif?ex=65ce3bdb&is=65bbc6db&hm=d13518f92c48759815f704e5f9c4db3fbed47687d1da283849a6d1dc02078687&)  
+![](https://cdn.discordapp.com/attachments/754805640332836894/1210974329576235008/epichippy_-_1731286326115201069.gif?ex=65ec82ba&is=65da0dba&hm=0b78cd8c3280b6ef70f20b41c5de56f31c7da27c2c07f69f63a80eca02a5d96f&)  
 
 ![](https://cdn.discordapp.com/attachments/754805640332836894/1206346337084375100/image.png?ex=65dbac93&is=65c93793&hm=d2bb49aa6b977b176493d1b09e3c165726a03d9f090090250ba03bed496b3d19&)
 
