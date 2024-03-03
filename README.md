@@ -1,5 +1,3 @@
-yall mfs with yaoi in your users i literally cannot differentiate yall if i dont remember u its probs cuz u have yaoi in your name 
-
 cute
 
 https://github.com/bathroombreak/bathroombreak/assets/108626152/08d02a15-ed2b-4474-8707-4684e675a94d
