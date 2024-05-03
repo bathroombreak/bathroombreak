@@ -2,4 +2,4 @@
 aventio brainrot
 
 
-![](https://cdn.discordapp.com/attachments/754805640332836894/1223725748217708715/Picsart_24-03-30_21-09-03-525.jpg?ex=662420ea&is=6611abea&hm=54d8e0d229eca4bd2783699572536b3beba32a54bbc209390b2f3f600f0a2291&)
+![](https://pbs.twimg.com/media/GMrIi6HWoAAJ3r6?format=jpg&name=large)
