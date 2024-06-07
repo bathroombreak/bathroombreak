@@ -1,3 +1,3 @@
-watch this brah #GOATED
+![](https://i.postimg.cc/MG2rKC9h/ezgif-com-added-text-1.gif) 
 
-![](https://scontent.fbud5-1.fna.fbcdn.net/v/t1.15752-9/438089978_780189024180355_5675557011579317988_n.png?_nc_cat=101&ccb=1-7&_nc_sid=5f2048&_nc_ohc=969ypfJBoXEQ7kNvgEMJbZ7&_nc_ht=scontent.fbud5-1.fna&oh=03_Q7cD1QEQ-FlCO8RavGZpZJjWnhig4xpoiP389Pb7oqh8SSORPw&oe=668311DA)
+![](https://i.postimg.cc/prT9Jxj1/Screenshot-2024-06-07-11-41-21-402-com-twitter-android-edit.jpg) 
