@@ -1,4 +1,3 @@
-wuwa uid is 600412873 on eu ADD ME BOYS!
 
 ![](https://i.postimg.cc/MG2rKC9h/ezgif-com-added-text-1.gif) 
 
