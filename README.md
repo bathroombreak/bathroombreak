@@ -1,4 +1,3 @@
-i Like gay shit DNI! If You dont like gayshit 
 
 https://github.com/bathroombreak/bathroombreak/assets/108626152/4ccd99ef-23b1-423d-b6b1-6658318e53b6
 
