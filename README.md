@@ -1,4 +1,4 @@
-Valorant and Fortnite cranker Ticking timebomb i will Explode in Rage when i lose my Victory streaks
+i Like gay shit DNI! If You dont like gayshit 
 
 https://github.com/bathroombreak/bathroombreak/assets/108626152/4ccd99ef-23b1-423d-b6b1-6658318e53b6
 
