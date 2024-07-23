@@ -3,7 +3,7 @@
   [atabook](https://gojo.atabook.org/) 
  </div>
 
-<p align="center"> <img src="https://i.postimg.cc/8z2jYtGH/image-2024-07-24-011352285.png" > </p> 
+<p align="center"> <img src="https://i.postimg.cc/DZ5HSpyd/image-2024-07-24-004147073-removebg-preview.png" > </p> 
 
 <div align="center">
 
