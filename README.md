@@ -3,7 +3,7 @@
   [atabook](https://gojo.atabook.org/) 
  </div>
 
-<p align="center"> <img src="https://media1.tenor.com/m/vu9Kkphu5h0AAAAC/grell-grellsutcliff.gif" > </p> 
+<p align="center"> <img src="https://files.catbox.moe/06xuzq.gif" > </p> 
 
 <div align="center">
 
