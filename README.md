@@ -1,4 +1,4 @@
-Taking skintrade Requests gallop up to me to SIGN UHP!
+
 <div align="center"> 
   
   [atabook](https://gojo.atabook.org/) 
