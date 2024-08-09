@@ -3,7 +3,7 @@
   [atabook](https://gojo.atabook.org/) 
  </div>
 
-<p align="center"> <img src="https://files.catbox.moe/4isai2.gif" > </p> 
+<p align="center"> <img src="https://media1.tenor.com/m/34YK3_4dzL4AAAAC/eunyung-baek-no-home.gif" > </p> 
 
 <div align="center">
 
