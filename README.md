@@ -8,7 +8,7 @@
 
 <div align="center">
 
-$\text{i'd \ like \ a \ tall \ woman \ \ \  with \ a \ nice \ big \ ass}$ 
+$\text{ but \ the \ evil \ is \ necessary}$ 
 <div align="center"> <img src="https://graphic.neocities.org/ff2.gif"‎ ‎
   
    [strawpage](https://jujutsu.straw.page)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[yap rentry](https://rentry.co/pussyeater69)
