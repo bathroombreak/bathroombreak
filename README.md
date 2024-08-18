@@ -4,7 +4,7 @@
   [atabook](https://gojo.atabook.org/) 
  </div>
 
-<p align="center"> <img src="https://media1.tenor.com/m/34YK3_4dzL4AAAAC/eunyung-baek-no-home.gif" > </p> 
+<p align="center"> <img src="https://files.catbox.moe/qqsadk.png" > </p> 
 
 <div align="center">
 
