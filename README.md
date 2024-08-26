@@ -11,5 +11,5 @@
 $\text{ but \ the \ evil \ is \ necessary}$ 
 <div align="center"> <img src="https://graphic.neocities.org/ff2.gif"‎ ‎
   
-   [strawpage](https://jujutsu.straw.page)  ‎ ‎          [guns.lol](https://guns.lol/bathroombreak)
+   [yap rentry](https://rentry.co/pussyeater69)  ‎ ‎          [guns.lol](https://guns.lol/bathroombreak)
  </div>
