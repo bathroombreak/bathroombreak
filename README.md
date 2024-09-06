@@ -4,7 +4,7 @@
   [atabook](https://gojo.atabook.org/) 
  </div>
 
-<p align="center"> <img src="https://files.catbox.moe/d2f301.png" > </p> 
+<p align="center"> <img src="https://i.imgur.com/ZdxiBTE.png" > </p> 
 
 <div align="center">
 
