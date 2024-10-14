@@ -9,6 +9,8 @@
 <div align="center">
 
 $\text{ but \ the \ evil \ is \ necessary}$ ‎
-  
-   [main rentry](https://rentry.co/piro)  ‎ ‎  
+<div align="center"> <img src="https://graphic.neocities.org/ff2.gif"‎
+ 
+
+[main rentry](https://rentry.co/piro)  ‎ ‎  
  </div>
