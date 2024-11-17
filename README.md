@@ -7,7 +7,4 @@
 <p align="center"> <img src="https://imgur.com/WY6IMKJ.png" > </p> 
 <p align="center">
 i like Fortnite
-<div align="center"> 
 
-[guns.lol](https://guns.lol/bathroombreak)
- </div>
