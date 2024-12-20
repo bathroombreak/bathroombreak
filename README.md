@@ -1,5 +1,5 @@
 
-<div align="center">  <img src="https://pixels.crd.co/assets/images/gallery01/9266e00f.gif?v=99d3974e" ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   
+<div align="center">  <img src="https://wilardo.crd.co/assets/images/gallery04/ee33c720.gif?v=f2364dd6" ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   
   
   ‎  ‎‎‎ ‎[atabook](https://gojo.atabook.org/)  ‎   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎  ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎ [rentry](https://rentry.co/summerseries)   🎀
  </div> 
