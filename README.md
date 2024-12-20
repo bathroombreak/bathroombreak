@@ -1,7 +1,7 @@
 
-<div align="center">  <img src="https://pixels.crd.co/assets/images/gallery55/20a5c4f1.gif?v=99d3974e" ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   
+<div align="center">  <img src="https://pixels.crd.co/assets/images/gallery01/9266e00f.gif?v=99d3974e" ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   
   
-  ‎  ‎‎‎ ‎[atabook](https://gojo.atabook.org/)  ‎   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎  ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎ [rentry](https://rentry.co/summerseries)   ☕
+  ‎  ‎‎‎ ‎[atabook](https://gojo.atabook.org/)  ‎   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎  ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎ [rentry](https://rentry.co/summerseries)   🎀
  </div> 
 
 <p align="center"> <img src="https://i.imgur.com/yM2MY9c.png" > </p> 
