@@ -4,6 +4,6 @@
   ‎  ‎‎‎ ‎[atabook](https://gojo.atabook.org/)  ‎   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎  ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎ ‎‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎‎ [rentry](https://rentry.co/summerseries)    🍕
  </div> 
 
-<p align="center"> <img src="https://i.imgur.com/iOsj1n4.png" > </p> 
+<p align="center"> <img src="https://files.catbox.moe/lh5l2f.jpg" > </p> 
 <p align="center">
 
