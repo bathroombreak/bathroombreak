@@ -1,4 +1,4 @@
-<div align="center"> ‎‎‎ ‎<a href="https://alienstage.straw.page"> straw </a>   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎    ‎ ‎‎‎‎‎  ‎‎ ‎‎‎ ‎‎  ‎‎   ‎ ‎‎‎‎‎  ‎‎  ‎ ‎‎‎‎‎  ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎‎‎‎ ‎‎‎<a href="https://gojo.atabook.org"> atabook</a>   
+<div align="center"> ‎‎‎ ‎<a href="https://alienstage.straw.page"> straw </a>   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎    ‎ ‎‎‎‎‎  ‎‎ ‎‎‎ ‎‎  ‎‎   ‎ ‎‎‎‎‎  ‎‎  ‎ ‎‎‎‎‎  ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎   ‎ ‎‎‎‎‎‎ ‎‎‎<a href="https://rentry.co/piro"> rentry</a>   
  </div> 
 
 
