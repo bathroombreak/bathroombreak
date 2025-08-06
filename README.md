@@ -8,7 +8,7 @@
  
 <p align="center"> <a href="https://github.com/kittinan/spotify-github-profile"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=vp0l8no3f2w2gwvtee007igpn&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=4e98b1&bar_color_cover=false" width=300 ></a> </p>
 
-<div align="center">  ‎   ‎‎ TOMODACHIS </div> 
+<div align="center">  ‎    ‎   ‎‎  ‎ TOMODACHIS </div> 
 
 <div align="center"> ‎‎‎  ‎‎ ‎‎ ‎<a href="https://github.com/tojifg">  💀 brotha </a> ‎   ‎‎ ‎‎‎‎‎<a href="https://github.com/yumefujo"> ❗️ vivi </a>  ‎   ‎‎ <a href="https://github.com/orekoto"> rain </a>  ‎‎‎  ‎‎ ‎<a href="https://github.com/yaoidemon"> iso ❗️  </a> ‎‎‎  ‎  ‎‎‎‎‎<a href="https://github.com/FIeshwater"> tahlia </a>
  </div> 
@@ -20,5 +20,5 @@
  </div> 
 
  
-<p align="center">   ‎   ‎‎  ‎   ‎‎ ‎‎‎‎‎<img src="https://64.media.tumblr.com/a6acb1d5ba92966482dadf62c767fc82/881e54578fc31d8b-45/s500x750/25303614a142c842c56e71644e59e58cfc9a4179.pnj" width=250> </p>
+<p align="center">   ‎   ‎‎  ‎   ‎‎ ‎‎‎‎‎<img src="https://64.media.tumblr.com/ba3b0180e4c74453121755d62a05cc1c/0c91b70a60d25622-07/s1280x1920/f16c530aa9d27a4a0720a93feb43b1040884929f.pnj" width=250> </p>
 <p align="center"> 
