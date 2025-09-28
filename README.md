@@ -10,9 +10,9 @@
 
 <div align="center">  ‎    ‎   ‎‎  ‎ TOMODACHIS </div> 
 
-<div align="center"> ‎‎‎  ‎‎ ‎‎ ‎<a href="https://github.com/tojifg">  💀 brotha </a> ‎   ‎‎ ‎‎‎‎‎<a href="https://github.com/yumefujo"> ❗️ vivi </a>  ‎   ‎‎ <a href="https://github.com/orekoto"> rain </a>  ‎‎‎  ‎‎ ‎<a href="https://github.com/yaoidemon"> iso ❗️  </a> ‎‎‎  ‎  ‎‎‎‎‎<a href="https://github.com/FIeshwater"> tahlia </a>
+<div align="center"> ‎‎‎  ‎‎ ‎‎   ‎‎ ‎‎‎‎‎<a href="https://github.com/yumefujo"> ❗️ vivi </a>  ‎   ‎‎ <a href="https://github.com/orekoto"> rain </a>  ‎‎‎  ‎‎ ‎<a href="https://github.com/yaoidemon"> iso ❗️  </a> ‎‎‎  ‎  ‎‎‎‎‎<a href="https://github.com/FIeshwater"> tahlia </a>‎‎‎‎‎  ‎ ‎‎‎  <a href="https://github.com/eatsleepedge"> cati </a>  ‎   ‎‎ <a href="https://github.com/10shadows"> khoi </a>
  </div> 
- <div align="center"> ‎‎‎  ‎‎ ‎‎ ‎‎‎‎‎<a href="https://github.com/dokhyuk"> vagina expert 💗🐹  </a>  ‎ ‎‎‎  ‎‎ ‎‎‎‎‎<a href="https://github.com/cupiddict"> blood </a>   ‎‎ ‎‎‎‎‎<a href="https://github.com/eatsleepedge"> cati </a>  ‎   ‎‎ <a href="https://github.com/10shadows"> khoi </a>
+ <div align="center"> ‎‎‎  ‎‎ ‎‎ ‎‎‎‎‎<a href="https://github.com/dokhyuk"> vagina expert 💗🐹  </a>  ‎ ‎‎‎  ‎‎ ‎‎‎‎‎<a href="https://github.com/cupiddict"> blood </a>  
  </div> 
    <div align="center"> ‎‎‎  ‎‎ ‎‎ ‎<a href="https://github.com/clubsick"> mika </a> ‎‎‎  ‎‎ ‎‎‎‎‎<a href="https://github.com/ukehole"> wen </a> ‎‎ ‎‎ ‎<a href="https://github.com/hua-binan"> jasper </a> ‎‎‎  ‎‎‎‎‎‎‎ ‎‎‎‎‎<a href="https://github.com/basementjazz"> zack </a>  ‎   ‎‎ ‎‎‎‎‎<a href="https://github.com/yaoishida"> ant </a>   ‎‎ ‎‎‎‎‎ ‎‎‎‎‎‎‎ ‎‎‎‎‎<a href="https://github.com/blackbetta"> ky </a>
  </div> 
