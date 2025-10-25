@@ -18,7 +18,7 @@
  </div> 
   <div align="center"> ‎‎‎  ‎‎ ‎‎ ‎‎‎‎‎<a href="https://github.com/cheriecrush"> cherie </a>  ‎   ‎‎ <a href="https://github.com/lobocorp"> sylvie </a>   ‎   ‎‎  ‎‎‎‎‎<a href="https://github.com/9THNINJA"> ray ‎‎‎ ‎‎‎  ‎‎ ‎‎‎‎‎<a href="https://github.com/fujoshphi"> phi </a>  ‎   ‎‎  ‎‎‎‎‎<a href="https://github.com/kyostro"> sucy </a>
  </div> 
-  <div align="center">   ‎‎ ‎‎‎‎‎  ‎‎ ‎‎‎‎‎‎‎‎‎‎<a href="https://github.com/enilll"> rien </a> ‎‎   ‎‎ ‎‎‎‎‎‎‎ ‎<a href="https://github.com/purrcore"> vito </a> ‎‎‎  ‎‎ ‎‎ ‎‎‎‎‎<a href="https://github.com/fuziyamas"> fuzi </a>  ‎   ‎‎ ‎‎‎‎‎<a href="https://github.com/vampaku"> marsh </a>  ‎   ‎‎ <a href="https://github.com/twerkfesting"> tiff </a>   ‎‎‎ ‎‎ ‎‎ ‎<a href="https://github.com/thangyu"> nil </a> 
+  <div align="center">   ‎‎ ‎‎‎‎‎  ‎‎ ‎‎‎‎‎‎‎‎‎‎<a href="https://github.com/enilll"> rien </a> ‎‎  ‎‎ ‎‎‎‎‎<a href="https://github.com/fuziyamas"> fuzi </a>  ‎   ‎‎ ‎‎‎‎‎<a href="https://github.com/vampaku"> marsh </a>  ‎   ‎‎ <a href="https://github.com/twerkfesting"> tiff </a>   ‎‎‎ ‎‎ ‎‎ ‎<a href="https://github.com/thangyu"> nil </a> 
  </div> 
   
 
